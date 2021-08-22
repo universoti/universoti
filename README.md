@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @universoti
+- 👋 Hi, I’m @universoti. Meu nome é Erick Fernando prazer em comprimentar você que chegou até aqui
 - 👀 I’m interested in  compartilhar conhecimento e divulgar meu canal no youtube  no qual se chama UniversoTi também
 - 🌱 I’m currently learning  e ensinando varias pessoas com isso
 - 💞️ I’m looking to collaborate on  deixar o pessoal mais rico de conhecimento
